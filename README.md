@@ -1,5 +1,5 @@
 Ezequiel Martinez
 Florencia Olhagaray
-Angela Echaverria
+Angela Echavarria
 Gabriel Morales
 Bernardo Collins
